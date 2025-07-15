@@ -1,2 +1,0 @@
-# Sagitarif
-Khusus untuk liaa
